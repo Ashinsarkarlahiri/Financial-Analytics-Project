@@ -4,6 +4,6 @@
 ![Screenshot 2024-06-02 054517](https://github.com/Ashinsarkarlahiri/Financial-Analytics-Project/blob/main/Screenshot%202024-12-24%20193221.png)
 ![Screenshot 2024-06-02 054517](https://github.com/Ashinsarkarlahiri/Financial-Analytics-Project/blob/main/Screenshot%202024-12-24%20193233.png)
 ![Screenshot 2024-06-02 054517](https://github.com/Ashinsarkarlahiri/Financial-Analytics-Project/blob/main/Screenshot%202024-12-24%20193245.png)
-![Screenshot 2024-06-02 054517]
+![Screenshot 2024-06-02 054517](https://github.com/Ashinsarkarlahiri/Financial-Analytics-Project/blob/main/Screenshot%202024-12-24%20193258.png)
 ![Screenshot 2024-06-02 054517]
 ![Screenshot 2024-06-02 054517]
